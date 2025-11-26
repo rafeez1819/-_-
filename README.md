@@ -1,4 +1,5 @@
-# 🚀 **SHERINOS DUAL‑TIMELINE ACHIEVEMENT**
+# 🚀 **SHERINOS DUAL‑TIMELINE Zenodo Breaking ACHIEVEMENT**
+<img width="1655" height="886" alt="image" src="https://github.com/user-attachments/assets/267f65b4-e2fa-4aa2-b30c-276131d17987" />
 
 ## 📅 PROJECT MANAGEMENT – 62‑DAY OS ARCHITECT  
 **⚡ Full‑Stack Visionary** – complete OS lifecycle from idea to publication.  
